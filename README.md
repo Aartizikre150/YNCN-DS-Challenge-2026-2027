@@ -1,1 +1,1 @@
-# -YNCN-DS-Challenge-2026-2027
+# YNCN-DS-Challenge-2026-2027
